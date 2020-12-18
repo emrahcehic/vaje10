@@ -1,1 +1,1 @@
-# vaje10
+Aladin Ćemalović spremenjeno
