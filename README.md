@@ -1,1 +1,1 @@
-# vaje10
+# Uvod v Racunalnistvo
